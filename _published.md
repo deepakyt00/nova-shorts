@@ -7,6 +7,7 @@ One line per video: date · topic · style · title · YouTube link. Never repea
 - 2026-11-19 · Earth stopped spinning / day lasts a year, oceans move to the poles · Nova 3D · What If Earth Stopped Spinning? #shorts · https://www.youtube.com/watch?v=oomgpJAzxB0
 - 2026-11-20 · the Moon disappearing / darker nights, smaller tides, Earth's tilt wobbles · Nova 3D · What If the Moon Disappeared? #shorts · https://www.youtube.com/watch?v=Yz4MXHq-GtQ
 - 2026-11-21 · taking off your helmet in space / vacuum exposure, pass out in ~15 s, 1960s NASA chamber survivor · Nova 3D · What If You Took Off Your Helmet in Space? #shorts · https://www.youtube.com/watch?v=LStkUI7tla4
+- 2026-11-22 · the Sun disappearing / 8 min 20 s of light and gravity left, Earth flies off straight, deep-sea vent life survives · Nova 3D · What If the Sun Disappeared? #shorts · https://www.youtube.com/watch?v=Tq2eUKA752U
 
 ## Topics already made (not published by the daily task; do not repeat)
 
