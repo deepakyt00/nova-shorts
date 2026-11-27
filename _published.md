@@ -12,6 +12,7 @@ One line per video: date · topic · style · title · YouTube link. Never repea
 - 2026-11-24 · falling through a hole through the Earth / gravity tunnel, 18,000 mph, weightless at the center, 38 minutes, core as hot as the Sun's surface, Kola borehole 7.6 miles · Nova 3D · What If You Fell Through the Earth? #shorts · https://www.youtube.com/watch?v=i7-fVV0vZa8
 - 2026-11-25 · Earth having rings like Saturn / thin line at the equator, arch at higher latitudes that never rises or sets, ring shadow in winter, possible real ring 466 million years ago (Monash 2024, 21 craters near the equator) · Nova 3D · What If Earth Had Rings Like Saturn? #shorts · https://www.youtube.com/watch?v=gN__b1Xu9G8
 - 2026-11-26 · [the brain, mind and psychology] using 100% of your brain / the 10% myth, whole brain used over a day and during sleep, 2% of body weight but 20% of energy, 86 billion neurons, firing all together is a seizure · Nova 3D · What If You Used 100% of Your Brain? #shorts · https://www.youtube.com/watch?v=Nj58Ytt-OiA
+- 2026-11-27 · [Earth, oceans, weather and natural disasters] being struck by lightning / bolt heats air to 50,000 F (hotter than the Sun's surface), millions of volts, about 9 in 10 survive, direct hits only 3-5% (ground current and side flash), heart rhythm is the real danger, park ranger struck seven times, when thunder roars go indoors · Nova 3D · What If Lightning Struck You? #shorts · https://www.youtube.com/watch?v=7Z3sJLLBn4c
 
 ## Topics already made (not published by the daily task; do not repeat)
 
